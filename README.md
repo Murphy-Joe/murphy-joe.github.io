@@ -165,7 +165,9 @@ From 12 to 1, because it’s the only chance I get to be first.
 >I like Irv Smith to do well with his new full time role in Minnesota this year, but lets talk about Diontae Johnson and Pittsburgh WRs history for a second.  
 
     
-    Please excuse this sidebar Daniel.  Ever since I've been playing fantasy football, Pittsburgh has ALWAYS had two simultaneously great wide receivers.  And they don't even try to draft them.  Allow me to drag you through 20 years in memory lane.  
+    Please excuse this sidebar Daniel.  
+    
+Ever since I've been playing fantasy football, Pittsburgh has ALWAYS had two simultaneously great wide receivers.  And they don't even try to draft them.  Allow me to drag you through 20 years in memory lane.  
 
 `01-05` Heinz Ward and Plaxico Burress. The OG's. 
 
