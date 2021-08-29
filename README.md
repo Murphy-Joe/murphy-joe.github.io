@@ -296,7 +296,7 @@ JuJu Smith-Schuster, Diontae Johnson, Chase Claypool.   STACKED. AS. EVER.
 >These guys also could have been taken in any order of equivalence, but Melinda got to pair one with the top (non-Kelce) TE Darren Waller from round 3 (pk 25). 
 
 
-    Late Addendum: Melinda reaps the JK Dobbins misfortunes with Gus Edwards stepping in to give her a rock solid starting roster.  Look out!
+> Late Addendum: Melinda reaps the JK Dobbins misfortunes with Gus Edwards stepping in to give her a rock solid starting roster.  Look out!
 
 `Reasons for worry`
 >The #1 variable that will decide her future is now Russell Wilson's health.  Much like Jim who owns both TB wideouts, and Andrew who owns both SF wideouts, Melinda owns Seattle's top 2 wideouts.  However I think the difference between Russ and his backup is far greater than the dropoff from SF's Garropollo or TB's Tom Brady (at his current age). 
