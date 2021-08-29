@@ -164,44 +164,44 @@ From 12 to 1, because it’s the only chance I get to be first.
 `Favorite non-foundational player`
 >I like Irv Smith to do well with his new full time role in Minnesota this year, but lets talk about Diontae Johnson and Pittsburgh WRs history for a second.  
 
-
+    
     Please excuse this sidebar Daniel.  Ever since I've been playing fantasy football, Pittsburgh has ALWAYS had two simultaneously great wide receivers.  And they don't even try to draft them.  Allow me to drag you through 20 years in memory lane.  
 
-    `01-`05 
-    Heinz Ward and Plaxico Burress. The OG's. 
+`01-05` Heinz Ward and Plaxico Burress. The OG's. 
 
-    `04
-    Big Ben comes in to play as a rookie and Heinz Ward is pissed.  Back when I was young rookie QB's were guaranteed to suck.  That started to change around the time Roethlisberger stepped on the field.  Roethlisberger had one trick; it was to look to one side of the field he wasn't going to throw to, and then just throw it to wherever Heinz Ward was.  Worked. 
+`04`
+Big Ben comes in to play as a rookie and Heinz Ward is pissed.  Back when I was young rookie QB's were guaranteed to suck.  That started to change around the time Roethlisberger stepped on the field.  Roethlisberger had one trick; it was to look to one side of the field he wasn't going to throw to, and then just throw it to wherever Heinz Ward was.  Worked. 
 
-    `06-`09
-    Heinz Ward and Santonio Holmes.  Yes, thanks Pittsburgh for realizing Ohio State players are awesome and ruining them for the kind folks here in Cleveland. (Baltimore does this too, on top of actually stealing our football team)
+`06-09`
+Heinz Ward and Santonio Holmes.  Yes, thanks Pittsburgh for realizing Ohio State players are awesome and ruining them for the kind folks here in Cleveland. (Baltimore does this too, on top of actually stealing our football team)
 
-    `10-`11
-    Heinz Ward, Mike Wallace (84th pick), Antonio Brown (195th pick).  Are you serious?  Heinz Ward is finally slowing down, but Mike Wallace comes in to run around like he's Josh Gordon.  Meanwhile Antonio Brown keeps making big plays and no one notices for a couple years.
+`10-11`
+Heinz Ward, Mike Wallace (84th pick), Antonio Brown (195th pick).  Are you serious?  Heinz Ward is finally slowing down, but Mike Wallace comes in to run around like he's Josh Gordon.  Meanwhile Antonio Brown keeps making big plays and no one notices for a couple years.
 
-    `12
-    Mike Wallace and Antonio Brown.  No big deal, just heavyweights Mike Tyson and Antonio Tarver in their prime. 
+`12`
+Mike Wallace and Antonio Brown.  No big deal, just heavyweights Mike Tyson and Antonio Tarver in their prime. 
 
-    `13
-    Antonio Brown and Emmanuel Sanders (82nd pick). Browns fans: Thank God Mike Wallace got signed away in free agency.  Wait, Emmanuel Sanders is good? wut.
+`13`
+Antonio Brown and Emmanuel Sanders (82nd pick). Browns fans: Thank God Mike Wallace got signed away in free agency.  Wait, Emmanuel Sanders is good? wut.
 
-    `14
-    Antonio Brown.  The EXCEPTION. in 2014 the second WR was Markus Wheaton.
+`14`
+Antonio Brown.  The EXCEPTION. in 2014 the second WR was Markus Wheaton.
 
-    `15-`17
-    Antonio Brown and Martavius Bryant (118th pick).  Martavius Bryant threatened to be what Chase Claypool is today, and he often was, but was equally as often suspended.
+`15-17`
+Antonio Brown and Martavius Bryant (118th pick).  Martavius Bryant threatened to be what Chase Claypool is today, and he often was, but was equally as often suspended.
 
-    `18
-    Antonio Brown and JuJu Smith-Schuster (62nd pick).  A guy named JuJu.  A small slot reciever forced to play on the outside.  Whatever, 111 catches and 1400 yards.  
+`18`
+Antonio Brown and JuJu Smith-Schuster (62nd pick).  A guy named JuJu.  A small slot reciever forced to play on the outside.  Whatever, 111 catches and 1400 yards.  
 
-    `19
-    Finally, Antonio Brown is GIVEN away to the Raiders while still in his prime. He gets a $30M signing bonus, and then repeatedly pulls the strangest publicity stunts ever seen to get released and lose his $30M bonus.  Only to be picked up by the Patriots with a $10M signing bonus.  Only to lose that and get re-released due to a sexual assault accusation.  In total that year AB went from $30M to $10M to $0.1M  Never forget. 
+`19`
+Finally, Antonio Brown is GIVEN away to the Raiders while still in his prime. He gets a $30M signing bonus, and then repeatedly pulls the strangest publicity stunts ever seen to get released and lose his $30M bonus.  Only to be picked up by the Patriots with a $10M signing bonus.  Only to lose that and get re-released due to a sexual assault accusation.  In total that year AB went from $30M to $10M to $0.1M  Never forget. 
 
-    `19
-    Oh ya, meanwhile the Steelers now have JuJu Smith-Schuster and Diontae Johnson (66th pick). 
+`19`
+Oh ya, meanwhile the Steelers now have JuJu Smith-Schuster and Diontae Johnson (66th pick). 
 
-    `20-`21
-    JuJu Smith-Schuster, Diontae Johnson, Chase Claypool.   STACKED. AS. EVER. 
+`20-21`
+JuJu Smith-Schuster, Diontae Johnson, Chase Claypool.   STACKED. AS. EVER. 
+
 
 <br>
 
