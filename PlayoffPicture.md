@@ -26,13 +26,13 @@ ___
     * Win + Kevin loses to Tony + Daniel loses to Matt + Garen puts up 33 more points than Kevin
 ___
     
-If you don't make the playoffs, there's still the consolation bracket for teams 6-12.  
+If you don't make the playoffs, there's still the consolation bracket for teams 7-12.  
 
 For draft order next year, you'll be able to choose which slot you want.  
 
 `First choice` goes to the winner of the league in honor of the legend that they have become and in addition to their $0 winnings.  
 
-`Second choice` goes to the winner of the consolation playoffs (teams 6-12).  That way you can still be playing for something if you want. 
+`Second choice` goes to the winner of the consolation playoffs (teams 7-12).  That way you can still be playing for something if you want. 
 
 
 The rest of the picks will be offered in reverse order of the final standings. 
